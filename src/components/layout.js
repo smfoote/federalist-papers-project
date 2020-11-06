@@ -7,10 +7,12 @@ const Layout = ({ location, title, children }) => {
   let header
 
   if (isRootPath) {
-    header = (
+    header = (<>
       <h1 className="main-heading">
         <Link to="/">{title}</Link>
       </h1>
+      <h2 className="main-heading-subtitle">Alexander Hamilton, James Madison, John Jay</h2>
+      </>
     )
   } else {
     header = (
