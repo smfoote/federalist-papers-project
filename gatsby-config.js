@@ -5,7 +5,7 @@ module.exports = {
       name: `Steven Foote`,
       summary: `Aspiring author`,
     },
-    description: `Making the Federalist Papers more accessible for a wider audience.`,
+    description: `Making the Federalist Papers more interesting and accessible for a wider audience.`,
     siteUrl: `https://gatsby-starter-blog-demo.netlify.app/`,
     social: {
       twitter: `smfoote`,
