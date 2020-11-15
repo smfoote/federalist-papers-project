@@ -44,8 +44,19 @@ conventions with foreign states as a single nation.
 Knowing as we did the advantages of our Union, we established a united federal government as soon as we were
 independent. Really, we established it before we had earned our independence by our blood. Our homes were
 still in flames. Our sons, brothers, and fathers were still shivering in the fields. Our enemies were at our
-doors when we first established a federal government. It's no surprise that a government established in those
-circumstances is
+doors when we first established a federal government. It's no surprise that, now that we're actually using it,
+the government that was thrown together in those circumstances is, to put it lightly, insufficient.
+
+We're a very smart people, though, and we saw the weakness of the Articles of Confederation. But we're not going
+to throw the baby (union and liberty) out with the bathwater. So, we sent some of the smartest among us, many
+of whom have proven their patriotism on the field of war, to a convention in Philadelphia, to consider
+what can be done to preserve our union and liberty.
+
+The circumstances of this convention were completely different than the one that gave us the Articles of
+Confederation. They met in a time of peace, without the sound of cannons threatening to end the meeting
+early. They spent months in cool deliberation, despite the heat of the Philadelphia summer. They sought
+no power, and were influenced by nothing more than their love of country. In the end, they brought forth
+a plan that they unanimously support.
 
 ---
 
