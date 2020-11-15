@@ -1,5 +1,5 @@
 ---
-title: General Introduction
+title: 1 - General Introduction
 date: "2020-11-10"
 originalAuthor: Alexander Hamilton
 description: "We have a chance to make a better government for ourselves. Let's not blow it."
