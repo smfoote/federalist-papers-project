@@ -1,8 +1,8 @@
 ---
-title: Concerning Dangers From Foreign Force and Influence
+title: 2 - Concerning Dangers From Foreign Force and Influence
 date: "2020-11-14"
 originalAuthor: John Jay
-description: ""
+description: "The question of adopting the Constitution is extremely important. Take it seriously, study it out, and consider the wisdom and integrity of the men who created and recommend it."
 ---
 
 The question of adopting the Constitution is a really big deal. Probably the most important that
@@ -57,6 +57,45 @@ Confederation. They met in a time of peace, without the sound of cannons threate
 early. They spent months in cool deliberation, despite the heat of the Philadelphia summer. They sought
 no power, and were influenced by nothing more than their love of country. In the end, they brought forth
 a plan that they unanimously support.
+
+But the fact is, this plan is a recommendation, not a mandate. The recommendation is not meant for blind
+approval, just because [Washington](https://www.archives.gov/founding-docs/founding-fathers-virginia#washington),
+[Franklin](https://www.archives.gov/founding-docs/founding-fathers-pennsylvania#franklin),
+[Pinckney](https://www.archives.gov/founding-docs/founding-fathers-south-carolina#cpinckney),
+[Madison](https://www.archives.gov/founding-docs/founding-fathers-virginia#madison),
+or [Hamilton](https://www.archives.gov/founding-docs/founding-fathers-new-york#hamilton)
+have given their approval. But you shouldn't just outright reject it, either. This subject is of such great
+importance that it deserves thorough and independent examination. But we're just dreaming if we hope
+that every American is going to take the time to thoroughly consider this issue. We've seen this before.
+The First Continental Congress in 1774 was (wisely) convened under similar circumstances of danger. The
+recommendations of that congress were wise and prudent, and yet the press took it upon themselves to tear
+them all apart as soon as they were made. Many others, including officers of the government and those
+who stood to lose power, position, or money, tirelessly worked to influence the people to reject the
+advice of that patriotic Congress. Many were deceived, or were too lazy to give the subject a true
+examination. Fortunately for them, and for us, the majority of the great majority of the people
+thought it through and decided to accept the advice of the Congress.
+
+That majority that did judiciously examine the recommendations of the Congress considered the men who
+gave the recommendations. They were wise and experienced men, and they represented every part of the
+country. They thoroughly discussed, during their time together, the true interests of the country.
+They were all had our best interest as their only interest, and they only made recommendations
+that they really felt were best for the country.
+
+The people at that time relied on the judgement and integrity of the Congress; they took their
+advice, ignoring the many voices arguing against it. If we were right to take the advice of
+the congress at that time, we would be even wiser to take the advice of the convention now.
+Many of the men who were present, and still unproven, at that Congress 13 years ago were also
+present at the convention. Their integrity has not been diminished, but now they have gained
+a significant amount of wisdom and political information, and have proven themselves true
+patriots through the war for independence.
+
+It's worth noting that that first Continental Congress, and every Congress that has met since then, have
+agreed with the people that our Union is essential to our success. To keep the union was the goal of
+the Constitutional Convention, and the goal of the plan it produced. So, why are there people now, at
+this critical moment, trying to convince us that the Union is no longer necessary? Why would they
+suggest we'd be better off with 3 or 4 separate confederacies? I hope we can all see clearly that if
+we break up the Union, America will have reason to exclaim, in the words of the Poet: "Farewell: A
+Long Farewell, to All my Greatness."
 
 ---
 
