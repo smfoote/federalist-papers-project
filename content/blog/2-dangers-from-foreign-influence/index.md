@@ -29,7 +29,7 @@ connected by navigable waters in the ocean and some of the greatest rivers in th
 as highways to ease transport and communication.
 
 It is wonderful that God has blessed this connected land with a united people, speaking the same
-language, having common ancestry, religious beliefs, political persuasions, manners, and customs.<sup>1</sup>
+language, having common ancestry, religious beliefs, political persuasions, manners, and customs.<sup>[1](#footnote1)</sup>
 This unity has allowed us to band together to fight in a long and bloody war to establish our freedom and
 independence.
 
@@ -99,7 +99,7 @@ Long Farewell, to All my Greatness."
 
 ---
 
-Footnote 1: The lack of diversity in these lines grates on the modern ears. We recognize the great benefit
+<a name="footnote1">Footnote 1</a>: The lack of diversity in these lines grates on the modern ears. We recognize the great benefit
 of diversity in our time. But, we shouldn't be too quick to judge our Founding Fathers. The homogeneity
 (or perceived homogeneity; we won't at this time get into the issue that Jay is entirely ignoring the
 presence of an entire race of people who were absolutely essential to the building up of this nation,
