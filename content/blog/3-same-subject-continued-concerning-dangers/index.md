@@ -15,7 +15,7 @@ For this essay, I am considering safety as it relates to peace from foreign and 
 
 Let's start with the assumption that wars arise from either real or perceived causes. If this is right, then we should think about whether a united America or a divided America is likely to produce more causes for war with other countries. If it turns out that a united America will give fewer causes for war, then a union will be more likely to lead to peace with other nations.
 
-So, what are the just causes for war? They typically come either from broken treaties or direct violence. America has already formed treaties with six countries&emdash;and all but Prussia have strong navies (and so they could attack us). We also have lots of trade with Portugal, Spain, and Britain, which all have colonies on our continent. <!-- This is a pretty big paraphrase -->
+So, what are the just causes for war? They typically come either from broken treaties or direct violence. America has already formed treaties with six countries&mdash;and all but Prussia have strong navies (and so they could attack us). We also have lots of trade with Portugal, Spain, and Britain, which all have colonies on our continent. <!-- This is a pretty big paraphrase -->
 
 In order to have peace, we need to be sure to observe international laws and norms with regard to these powerful countries, and this will obviously be easier with a single national government rather than thirteen separate states or a few confederacies.
 
