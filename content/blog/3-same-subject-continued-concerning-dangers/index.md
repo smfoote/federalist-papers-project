@@ -1,7 +1,8 @@
 ---
-title: "The Same Subject Continued: Concerning Dangers from Foreign Force and Influence"
+title: "3 - The Same Subject Continued: Concerning Dangers from Foreign Force and Influence"
 date: "2020-11-18"
 originalAuthor: John Jay
+author: Jeremy Foote
 description: "It is better to have a single, united government when it comes to the dangers of war an international relations."
 ---
 
