@@ -1,6 +1,6 @@
 ---
-title: 4 - The Same Subject Continued
-date: "2020-11-19"
+title: "4 - The Same Subject Continued: Concerning Dangers from Foreign Force and Influence"
+date: "2020-11-28"
 originalAuthor: John Jay
 author: Steven Foote
 description: "The Union invites and promotes peace. A lack of union invites war."
@@ -76,3 +76,23 @@ blood and dollars on the line to defend their neighbor? If they are independent 
 stops one state from making a treaty with the country that is attacking their neighbor? Sure, it
 would be unwise for the states to stab each other in the back like that, but it could happen. Look
 at the history of Greece, where it happened over and over again.
+
+But let's assume, fo the sake of argument, that the states would be willing to help each other
+if one were invaded. How would that even work? Who would be in charge? Who would pay for the
+arms and armies? Who gets to write out the treaty? Who gets to settle the disputes if the states
+disagree? I'm not saying these questions don't have an answer, but that the answer is complicated
+and more likely to lead to conflict with several separate states than with one united government.
+
+Whether we decide to be united under a single government or separated into several separate state
+governments, of this you can be certain: the rest of the world will be watching and they will
+be aware of our choice. They will notice if our national government is functioning like a
+well-oiled machine. They will notice if our trade is thoughtfully regulated instead of
+being a corrupt free-for-all. They will notice if our militia is properly organized and
+disciplined. They will notice if we are wisely using our resources and finances, and we are capable
+of paying our debts. They will notice the strength of the American people, and it will encourage
+friendship and cooperation instead of provoking resentment. On the other hand, if we decide we don't
+need a strong government, and we split up into several states or confederacies who can't even get
+along among themselves (for reasons already outlined, and yet to be discussed), they will notice.
+If they see one state favoring Britain, another France, and another Spain, they will see that. And
+they will exploit it! We will look like the backwater mess they already think we are, and they will
+not respect us. If we divide, we will soon discover, we will divide against ourselves.
