@@ -7,18 +7,20 @@ description: "The Union invites and promotes peace. A lack of union invites war.
 ---
 
 I can hear you, dear reader, asking, "The same subject? Continued? What else can he
-possibly have to say?" I might even write a whole other essay on the same subject. Why?
-Because it's a darn important subject; without the strength of the Union, nothing else I
-have to say will matter. So, yes, I will continue with the same subject.
+possibly have to say?" A lot! I might even write a whole other essay on the same
+subject after this one. Why? Because it's a darn important subject; without the
+strength of the Union, nothing else I have to say will matter. So, yes, I will
+continue with the same subject.
 
 We've already seen that the Union protects us when a country comes to war against us for
 _good_ reasons. But history is proof that countries do not only go to war for _good_ reasons.
 When you have an absolute monarch (you might use the term "dictator") running the show, he
-doesn't even need a reason to go to war. Maybe he likes the way their soldiers look, marching
+doesn't even need a reason to go to war. Maybe he likes the way his soldiers look, marching
 in their uniforms. Maybe he feels personally insulted by another country. King David used a war
-to help cover up an affair. No one wants to be a soldier under such a king, sure. But we also
-don't want to be the country who that king decides to attack. The kings have their reasons for
-going to war, however insane they may be. Our job is to make sure we're not on the receiving end.
+to help cover up an affair. It happens No one wants to be a soldier under such a king, sure.
+But we also don't want to be the country who that king decides to attack. The kings have their
+reasons for going to war, however insane they may be. Our job is to make sure we're not on
+the receiving end.
 
 Already, we are competing with Britain and France in the fishing industry. We're competing so well
 that American fish can sell for cheaper than British or French fish, even when they use subsidies and
@@ -61,7 +63,7 @@ If you mess with Delaware, you mess with all of us, so back up.
 
 Imagine if the British Army acted instead as a group of smaller militias. Imagine if the English
 militia obeyed only the government of England, and the Welsh militia obeyed on the government
-of Wales, and the Scottish militia obeyed only the government of Scotland. Would the be able to
+of Wales, and the Scottish militia obeyed only the government of Scotland. Would they be able to
 fend off an invasion as well as a unified British Army under a single British government? I doubt
 they would even be able to agree that they all wanted to fend off the invasion.
 
@@ -93,6 +95,6 @@ of paying our debts. They will notice the strength of the American people, and i
 friendship and cooperation instead of provoking resentment. On the other hand, if we decide we don't
 need a strong government, and we split up into several states or confederacies who can't even get
 along among themselves (for reasons already outlined, and yet to be discussed), they will notice.
-If they see one state favoring Britain, another France, and another Spain, they will see that. And
+If one state favors Britain, another France, and another Spain, they will see that. And
 they will exploit it! We will look like the backwater mess they already think we are, and they will
 not respect us. If we divide, we will soon discover, we will divide against ourselves.
