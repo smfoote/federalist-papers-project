@@ -1,6 +1,6 @@
 ---
 title: "5 - The Same Subject Continued: Concerning Dangers from Foreign Force and Influence"
-date: "2020-12-2"
+date: "2020-12-12"
 originalAuthor: John Jay
 author: Steven Foote
 description: "Without the strength of the Union, we will fight constantly among ourselves."
