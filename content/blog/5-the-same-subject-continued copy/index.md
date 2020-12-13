@@ -6,7 +6,7 @@ author: Steven Foote
 description: "Without the strength of the Union, we will fight constantly among ourselves."
 ---
 
-This is the last one, then I'm moving on to a new subject. I swear!.
+This is the last one, then I'm moving on to a new subject. I swear!
 
 In 1706, Queen Anne wrote a letter as England and Scotland were first uniting. We can learn a lot
 from it, but 1706 was a long time ago, so I will paraphrase so the lessons can be more easily
