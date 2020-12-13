@@ -65,8 +65,8 @@ make them leave. Once foreign boats full of foreign troops and foreign guns are 
 losing our hard-won independence. Can you not remember how many nations the Romans conquered by coming
 in as protectors, then refusing to leave.
 
-Think hard, be wise, and then decide if a division of America into any number of independent nations
-will serve us better against foreign hostilities and interference.
+Think hard, be wise, and then decide. If we divide America into any number of independent nations,
+will that keep us more safe from foreign influence an hostilities?
 
 ---
 
