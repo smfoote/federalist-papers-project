@@ -66,7 +66,7 @@ losing our hard-won independence. Can you not remember how many nations the Roma
 in as protectors, then refusing to leave.
 
 Think hard, be wise, and then decide. If we divide America into any number of independent nations,
-will that keep us more safe from foreign influence an hostilities?
+will that keep us more safe from foreign influence and hostilities?
 
 ---
 
