@@ -6,12 +6,14 @@ author: Steven Foote
 description: "If we don't have union we'll never have peace"
 ---
 
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/979142482&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/steven-foote-316552313" title="Steven Foote" target="_blank" style="color: #cccccc; text-decoration: none;">Steven Foote</a> · <a href="https://soundcloud.com/steven-foote-316552313/federalist-6" title="Federalist 6" target="_blank" style="color: #cccccc; text-decoration: none;">Federalist 6</a></div>
+
 First, I'd like to thank you for your patience.<br>
 Now, let's take our lesson from the ancients.<br>
 How, if you put it to the Roman sages,<br>
-They would say the question is outrageous.<br>
+Wow, they'd say the question is outrageous.<br>
 
-Sparta, Carthage, Athens and Rome:<br>
+Sparta, Carthage, Athens, Rome:<br>
 All republics,<br>
 Always at war,<br>
 All overthrown.<br>
@@ -22,14 +24,14 @@ By commerce alone.<br>
 
 But, let's say that we follow this line of thought,<br>
 Throw away Union and all that our blood has bought.<br>
-I'm not a better but I'd bet we're not better off<br>
+I'm not a bettor but I'd bet we're not better off<br>
 Fighting among us like young Turks and Romanovs.<sup><a href="#footnote-1">1</a></sup><br>
 
 If you don't think that's our fate you're<br>
 Just ignoring human nature.<br>
 And yes, I will elaborate, sure.<br>
 Let's say Virginia's magistrate or<br>
-Czar, president or king<br>
+President, czar, or king<br>
 Has a fling<br>
 With the queen<br>
 Of New Orleans.<br>
@@ -51,8 +53,8 @@ That commerce will save us from history's<br>
 Surest fate. That we'll proceed with ease.<br>
 That a dog won't have fleas<br>
 'Cause it doesn't want fleas.<br>
-Republics start wars just as often as kings.<br>
-Power starts fights just as often as greed.<br>
+Republics start fights just as often as kings.<br>
+Power starts wars just as often as greed.<br>
 It's all in the books, how can you not see<br>
 If we don't have union we'll never have peace?!<br>
 
