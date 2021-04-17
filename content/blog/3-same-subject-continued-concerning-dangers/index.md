@@ -3,7 +3,7 @@ title: "3 - The Same Subject Continued: Concerning Dangers from Foreign Force an
 date: "2020-11-18"
 originalAuthor: John Jay
 author: Jeremy Foote
-description: "It is better to have a single, united government when it comes to the dangers of war an international relations."
+description: "It is better to have a single, united government when it comes to the dangers of war and international relations."
 ---
 
 It hardly takes a genius to recognize that the citizens of any country (especially a people as intelligent and well-informed as you, my fellow Americans) rarely adopt incorrect opinions about what is good for them--at least not for very long. So, the fact that we have persisted in believing that we should stay united under a single, sufficiently powerful federal government means that it's probably a good idea.
