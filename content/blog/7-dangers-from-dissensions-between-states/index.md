@@ -75,3 +75,5 @@ Let's build bridges instead of moats.<br/>
 We could be friends instead of foes.<br/>
 We could avoid these awful woes.<br/>
 We can choose how our story goes.<br/>
+
+Let's go.
