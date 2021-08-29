@@ -1,79 +1,70 @@
 ---
-title: "7 - Concerning Dangers from Dissensions Between the States (Continued)"
-date: "2021-04-16"
+title: "8 - The Consequences of Hostilities Between the States"
+date: "2021-08-28"
 originalAuthor: Alexander Hamilton
 author: Steven Foote
-description: "We can choose how our story goes"
+description: "Actually we’d make a casualty of our free society by army and admiralty"
 ---
 
-Yeah, I dropped the mic last time<br/>
-And yeah, I picked it up 'cause I'm<br/>
-Still in my prime plus I<br/>
-Thought of another rhyme.<br/>
+Now that I have proven my position<br/>
+And I assume that we can take it as a given,<br/>
+Yet I've still got ammunition, if you'll listen,<br/>
+So I'll elucidate the situation we would live in.<br/>
 
-So, you think that we'll never fight, that<br/>
-Through the war we are united.<br/>
-Ignorance is almost a crime, and<br/>
-You want to know how and why, then<br/>
-I'll let these lines leave you enlightened.<br/>
+Go ahead, sit back and you'll<br/>
+See my logic is sound and my words are factual.<br/>
+Unlike Europe, we don't have castles that'll<br/>
+Make the prospect of perpetual battles<br/>
+As a matter of fact, mathematically impractical.<br/>
 
-Three words:<br/>
-Land<br/>
-Business<br/>
-Debt<br/>
+Actually<br/>
+We'd make a<br/>
+Casualty<br/>
+Of our<br/>
+Free society<br/>
+By army and<br/>
+Admiralty<br/>
 
-Well, we've been blessed<br/>
-with wild wealth in the West.<br/>
-States're all scheming,<br/>
-Playin' it close to the vest.<br/>
-But in case you haven’t guessed,<br/>
-Yes, we're in for a mess.<br/>
+The states will start gathering their forces.<br/>
+They say most unions end in divorces.<br/>
+Ours would end with guns and charging horses.<br/>
+It's not too late to change courses.<br/>
 
-Now, let's<br/>
-Be real about this.<br/>
-Is it too late to say<br/>
-How I feel about this?<br/>
-No one can give<br/>
-Even a slap on the wrist<br/>
-When separate states<br/>
-Can just do as they wish. <br/>
+Of course it's<br/>
+Never a sure bet.<br/>
+But when troops take your bed<br/>
+I bet you'd forfeit<br/>
+(Not to be morbid)<br/>
+Your freedoms for your head.<br/>
+Would it be worth it?<br/>
 
-We fought together for this land.<br/>
-We'll fight each other for that land.<br/>
-Without Washington's steady hand<br/>
-Who can give us a command?<br/>
+We're not alone on an English island.<br/>
+We're not protected by Scottish highlands.<br/>
+Without forts, things'll get violent<br/>
+Like the trenches we left our blood, sweat, and bile in.<br/>
 
-Now states are scrapping for Wyoming.<br/>
-Man, Wyoming?! See where this is going?<br/>
-Like the shores that keep eroding,<br/>
-Rivers and rhymes that keep on flowing,<br/>
-Like the debts we keep on owing.<br/>
-Half the battle is just knowing.<br/>
+Well, is that what we want?<br/>
+All of our borders become battle fronts.<br/>
+Suppose Pennsylv-an-i-a pulls a stunt<br/>
+And then New Jersey pulls out their guns.<br/>
+Yeah, well I warned you; don't look so stunned, son.<br/>
 
-And you know we've<br/>
-Already caught beef<br/>
-With half the country<br/>
-Over our port fees<br/>
-And real estate schemes.<br/>
-Now do you feel me?<br/>
+There's an ocean between us and Europe;<br/>
+Canadians are too cold and polite to stir up<br/>
+Any problems. So the problem's if we're up<br/>
+To the task of Union this Constitution will shore up.<br/>
+(Sure 'nuff)<br/>
 
-If we stay together<br/>
-And pay together<br/>
-We'll lean on each other<br/>
-And that's great.<br/>
-But if we split up,<br/>
-Well, then we'll get a<br/>
-Lien on our entire state.<br/>
-Are we still having this debate?<br/>
-No.<br/>
-
-So, it's the UNION I propose,<br/>
-And the general welfare it promotes,<br/>
-Or we'll be at each other's throats,<br/>
-And we'll tax each other's goats.<br/>
-Let's build bridges instead of moats.<br/>
-We could be friends instead of foes.<br/>
-We could avoid these awful woes.<br/>
-We can choose how our story goes.<br/>
-
-Let's go.
+This is our chance<br/>
+To let progress<br/>
+Instead of armies advance.<br/>
+We're protected by<br/>
+The Atlantic's expanse.<br/>
+We could flourish,<br/>
+Fulfill our wishes and plans<br/>
+Or be stuck fighting<br/>
+Instead of sowing some plants.<br/>
+Let farmers push plows<br/>
+Instead of wielding a lance.<br/>
+Union is how<br/>
+We can protect our lands.<br/>
