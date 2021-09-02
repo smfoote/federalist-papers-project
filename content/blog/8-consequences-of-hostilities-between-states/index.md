@@ -13,9 +13,9 @@ So I'll elucidate the situation we would live in.<br/>
 
 Go ahead, sit back and you'll<br/>
 See my logic is sound and my words are factual.<br/>
-Unlike Europe, we don't have castles that'll<br/>
-Make the prospect of perpetual battles<br/>
-As a matter of fact, mathematically impractical.<br/>
+Unlike Europe, we don't have castles<br/>
+That'll make the prospect of perpetual<br/>
+Battles as a matter of fact, mathematically impractical.<br/>
 
 Actually<br/>
 We'd make a<br/>
@@ -45,7 +45,7 @@ Like the trenches we left our blood, sweat, and bile in.<br/>
 
 Well, is that what we want?<br/>
 All of our borders become battle fronts.<br/>
-Suppose Pennsylv-an-i-a pulls a stunt<br/>
+Suppose Pennsyl-van-i-a pulls a stunt<br/>
 And then New Jersey pulls out their guns.<br/>
 Yeah, well I warned you; don't look so stunned, son.<br/>
 
